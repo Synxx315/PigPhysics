@@ -34,5 +34,4 @@ Congradulate the short people
 cause in the end they are tall
 body size doesn't matter 'cause
 in the end, the true tall people are all
-
 The ones who recieve less brain damage when they fall.
