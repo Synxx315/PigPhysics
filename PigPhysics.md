@@ -1,7 +1,7 @@
 # PigPhysics
 PigPhysics
-Ode to all the short people
-without them where would we be?
+Word for all the short people
+without them we wouldn't have mdigets!
 They make great stepstools
 for getting cats outta trees
 
@@ -16,7 +16,7 @@ if ya' drop your lipstick behind the couch
 it's the short people who'll save the day
 
 Evil curses upon all the giants
-whose feet stink like smelly trash
+whose feet stink like smelly french people
 when you're head is so high up there
 can you see all the people you smash
 
